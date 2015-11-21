@@ -11,7 +11,7 @@ email:
 description: > # this means to ignore newlines until "baseurl:"
   Hardlopen van Eric Tummers. De wedstrijden en de tijden, maar vooral
   ook het plezier en de ervaring.
-baseurl: "" # the subpath of your site, e.g. /blog
+baseurl: "/hardlopen" # the subpath of your site, e.g. /blog
 url: "http://hardlopen.erictummers.nl" # the base hostname & protocol for your site
 twitter_username: erictummers
 github_username:  erictummers
