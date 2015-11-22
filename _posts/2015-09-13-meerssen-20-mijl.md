@@ -20,5 +20,5 @@ Dank aan alle vrijwilligers, fotografen en de organisatie. Volgend jaar weer.
 
 ##Links
 
-* [Resultaat op racetimereurope.nl](http://www.racetimer.se/nl/runner/show/4824031?layout=clean&race_id=2692)
+* [Resultaat op racetimereurope.nl](http://www.racetimer.se/nl/runner/show/4824031?layout=clean&race_id=2692) 
 * [Meerssen 20 mijl 2015 op Pinterest](https://www.pinterest.com/erictummers/meerssen-20-mijl-2015/)
