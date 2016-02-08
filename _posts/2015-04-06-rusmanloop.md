@@ -16,7 +16,7 @@ Mijn laatste kilometers vliegen voorbij. Ik focus me op de dame met roze compres
 
 "We gaan langzaam lopen", ik hoor het ons nog zeggen.
 
-##Links
+## Links
 
 * [Resultaat op uitslagen.nl](http://uitslagen.nl/uitslag?id=2015040617341&tl=nl&zk=tummers&taal=nl)
 * [Rusmanloop 2015 op Pinterest](http://www.pinterest.com/erictummers/rusmanloop-2015/)

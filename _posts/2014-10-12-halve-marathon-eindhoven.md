@@ -18,7 +18,7 @@ Het laatste stuk wordt het moeilijker. Rond 18 km moet ik even wandelen om weer 
 
 Trainen met een schema doet me goed. Ik voel me weer een stuk beter dan afgelopen jaar. De volgende HM ga ik weer met dit schema opbouwen.
 
-##Links
+## Links
 
 * [Resultaat op uitslagen.nl](http://evenementen.uitslagen.nl/2014/marathoneindhoven/details.php?s=6207)
 * [Halve marathon Eindhoven 2014 op Pinterest](http://www.pinterest.com/erictummers/halve-marathon-eindhoven-2014/)

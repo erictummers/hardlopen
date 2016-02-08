@@ -25,7 +25,7 @@ Het laatste rondje versnel ik en vanaf de wissel naar de finish trek ik nog een 
 
 Nummer 36 op de wissel wint de vlaai. Een hele lekkere appel toeslag. De winst wordt tot onze vreugde direct aangesneden en rondgedeeld. Dit is genieten op z'n Limburgs!
 
-##Links
+## Links
 
 * [Resultaat op kranenbroek-echt.nl](http://kranenbroek-echt.nl/uitslagen_files/uitslagen_2014_2015/uitslag14sep2014.xls)
 * [Kranenbroeker Trimloop 2014 op Pinterest](http://www.pinterest.com/erictummers/Kranenbroeker-Trimloop-2014/)

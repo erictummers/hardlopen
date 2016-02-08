@@ -12,7 +12,7 @@ De laatste ronde moet ik mijn haas laten gaan. Als ik de hoek om kom naar de ein
 
 Op de afterpartij staat een fantastische DJ mee te zingen met George Baker Selection. Wat zijn die lokale wedstrijdjes toch leuk.
 
-##Links
+## Links
 
 * [Resultaat op uitslagen.nl](http://uitslagen.nl/uitslag?id=2015060500102&tl=nl&zk=eric+tummers)
 * [Pepijnloop 2015 op Pinterest](https://www.pinterest.com/erictummers/pepijnloop-2015/)

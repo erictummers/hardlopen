@@ -12,6 +12,6 @@ Vriend en vijand verbaast, maar we worden eerste! Huldiging op de trappen van he
 
 ![](https://s-media-cache-ak0.pinimg.com/236x/02/c5/81/02c581a28d25cb7a36aca0ec077299d3.jpg)
 
-##Links
+## Links
 * [Mijn resultaat op uitslagen.nl](http://bit.ly/Hp9osq)
 * [Maastrichts mooiste 2012 op Pinterest](http://www.pinterest.com/erictummers/maastrichts-mooiste-2012/)

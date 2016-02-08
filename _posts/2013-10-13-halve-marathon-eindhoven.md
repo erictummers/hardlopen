@@ -16,6 +16,6 @@ Met de finish in zicht kijk ik nog eens op mijn horloge. 1 uur 42, ik kan nog sn
 
 Dat onbezonnen knallen tot ik niet meer kan is op de lange afstand toch niet zo'n goede strategie. Het advies dat ik heb gekregen is om 10 slagen onder mijn omslagpunt te lopen tot 5 km, dan 5 slagen eronder tot 10 km en dan pas over het omslagpunt te gaan. Bij een halve marathon wel te verstaan. Plan is om volgend jaar de hele te doen ...
 
-##Links
+## Links
 * [Mijn resultaat op uitslagen.nl](http://bit.ly/17sRRcg)
 * [Halve marathon Eindhoven 2013 op Pinterest](http://www.pinterest.com/erictummers/halve-marathon-eindhoven-2013/)
