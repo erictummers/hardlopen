@@ -17,9 +17,9 @@ permalink: /record/
 	<tbody>
 		<tr>
 			<td>5K</td>
-			<td>0:20:35</td>
-			<td>2013-05-23</td>
-			<td>Heerlen</td>			
+			<td>0:19:45</td>
+			<td>2015-12-31</td>
+			<td>Maasbracht</td>			
 		</tr>
 		<tr>
 			<td>10K</td>
