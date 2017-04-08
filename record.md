@@ -35,9 +35,9 @@ permalink: /record/
 		</tr>
 		<tr>
 			<td>Halve marathon</td>
-			<td>1:42:15</td>
-			<td>2015-01-18</td>
-			<td>Posterholt</td>			
+			<td>1:39:23</td>
+			<td>2017-03-26</td>
+			<td>Venlo</td>			
 		</tr>
 		<tr>
 			<td>Marathon</td>
