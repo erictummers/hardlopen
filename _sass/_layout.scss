@@ -7,7 +7,7 @@
     min-height: 56px;
     margin-bottom: 66px;
     padding-bottom: 66px;
-    background-image: url({{ site.github.url }}/images/b39586ec6b30402da122b28c3baabae8.jpg);
+    background-image: url({{ "/images/b39586ec6b30402da122b28c3baabae8.jpg" | prepend: site.baseurl }});
     background-position:center;
     // Positioning context for the mobile navigation icon
     position: relative;
