@@ -8,7 +8,7 @@ Even inlopen en dan opstellen voor de start. Het plan is om weer rond de 20 minu
 
 ![startnummer 35](https://s-media-cache-ak0.pinimg.com/originals/03/fa/7f/03fa7f191686587e5b1df154b880f66c.jpg)
 
-Vanaf de start loop ik in een groepje van 4. Halverwege moeten we er twee laten gaan en gaan Ron en ik in de achtervolging. Al snel moet Ron ook een stapje langzamer en loop ik alleen.
+Vanaf de start loop ik in een groepje van 4. Halverwege moeten we er twee laten gaan en gaan Harry en ik in de achtervolging. Al snel moet Harry ook een stapje langzamer en loop ik alleen.
 
 In de derde ronde haal ik team Phoenix in. Dat is teambuilding!
 
