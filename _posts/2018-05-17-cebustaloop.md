@@ -8,7 +8,7 @@ Het is weer mei en dat betekend de Cebustaloop in Heerlen. Zoals ieder jaar doe 
 
 Vanaf de start gaat direct het gas erop. De eerste kilometer gaat in 03:47. Harry haalt me kort daarna in en ik kan hem niet meer bijhouden.
 
-Ik loop samen met een dame die hetzelfde tempo heeft. Halverwege het laatste rondje neem ik haar nog op sleeptouw en we finished kort na elkaar. Net iets langzamer als vorig jaar. 20:11 wordt mijn officiële tijd.
+Ik loop samen met een dame die hetzelfde tempo heeft. Halverwege het laatste rondje neem ik haar nog op sleeptouw en we finished kort na elkaar. Net iets langzamer als vorig jaar. 20:09 wordt mijn officiële tijd.
 
 ## Links
 
