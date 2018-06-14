@@ -23,8 +23,8 @@ permalink: /record/
 		</tr>
 		<tr>
 			<td>10K</td>
-			<td>0:44:43</td>
-			<td>2013-06-09</td>
+			<td>0:43:48</td>
+			<td>2018-06-10</td>
 			<td>Maastricht</td>			
 		</tr>
 		<tr>
