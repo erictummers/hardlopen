@@ -2,15 +2,15 @@
 layout: post
 ---
 
-Het is weer mei en dat betekend de Cebustaloop in Heerlen. Zoals ieder jaar doe ik weer een aanval op mijn PR van de 5 Km.
+Het werd weer eens tijd voor een 10 km wedstrijd. Na wat onderhandelen mag ik bij de pacer 45:00 in het startvak beginnen. 
+De zandlopen start is blijkbaar iets anders dan een fuik, maar we zijn vertrokken.
 
-![startnummer 034](https://i.pinimg.com/originals/5c/1b/9d/5c1b9daa9d2641bf24e6a5e4b23c0df9.png)
+![startnummer 18619](https://i.pinimg.com/564x/df/e3/4d/dfe34d9b380a6a6b4391e836bb69a843.jpg)
 
-Vanaf de start gaat direct het gas erop. De eerste kilometer gaat in 03:47. Harry haalt me kort daarna in en ik kan hem niet meer bijhouden.
-
-Ik loop samen met een dame die hetzelfde tempo heeft. Halverwege het laatste rondje neem ik haar nog op sleeptouw en we finished kort na elkaar. Net iets langzamer als vorig jaar. 20:09 wordt mijn officiële tijd.
+Dankzij de pacer ga ik niet te hard van start en kan ik redelijk makkelijk mee komen. Bij de Slavante en Zonneberg wordt het even afzien.
+Daarna is het berg af tot aan de finish. Het wordt 43:48 en een nieuw PR!
 
 ## Links
 
-* [Resultaat op uitslagen.nl](https://uitslagen.nl/uitslag?id=2018051700482&tl=nl&zk=tummers)
-* [Cebustaloop 2018 op Pinterest](https://nl.pinterest.com/erictummers/cebustaloop-2018/)
+* [Resultaat op maastrichtsmooiste.nl](https://www.maastrichtsmooiste.nl/uitslagen?edition=2018&bib=18619)
+* [Maastrichts Mooiste 2018 op Pinterest](https://nl.pinterest.com/erictummers/maastrichts-mooiste-2018/)
