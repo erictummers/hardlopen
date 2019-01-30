@@ -15,5 +15,5 @@ Ik loop een tijdje in een groepje van vier waar het tempo rond de 12 km/u ligt. 
 ## Links
 
 * [Resultaat op uitslagen.nl](https://uitslagen.nl/uitslag?id=2019012000921&tl=nl&zk=43)
-* [Annendaalloop 2018 op Pinterest](https://nl.pinterest.com/erictummers/annendaalloop-2019/)
+* [Annendaalloop 2019 op Pinterest](https://nl.pinterest.com/erictummers/annendaalloop-2019/)
 
