@@ -41,9 +41,9 @@ permalink: /record/
 		</tr>
 		<tr>
 			<td>Marathon</td>
-			<td>3:55:29</td>
-			<td>2015-10-11</td>
-			<td>Eindhoven</td>			
+			<td>3:47:27</td>
+			<td>2020-10-03</td>
+			<td>Sittard</td>			
 		</tr>
 	</tbody>
 </table>
