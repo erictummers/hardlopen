@@ -23,9 +23,9 @@ permalink: /record/
 		</tr>
 		<tr>
 			<td>10K</td>
-			<td>0:43:29</td>
-			<td>2024-06-28</td>
-			<td>Bingelrade</td>			
+			<td>0:42:01</td>
+			<td>2024-07-30</td>
+			<td>Sittard</td>			
 		</tr>
 		<tr>
 			<td>10EM</td>
