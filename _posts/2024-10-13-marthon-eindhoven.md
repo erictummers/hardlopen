@@ -22,4 +22,4 @@ Dat sportrusten schema werkt erg goed als je rond de 4 uur wil doen over je mara
 ## Links
 
 * [Resultaat op sporthive.com](https://results.sporthive.com/events/7249382119669006336/races/491064/bib/5980)
-* [Marathon Eindhoven 2024 op Pinterest] (https://nl.pinterest.com/erictummers/marathon-eindhoven-2024)
+* [Marathon Eindhoven 2024 op Pinterest](https://nl.pinterest.com/erictummers/marathon-eindhoven-2024)
