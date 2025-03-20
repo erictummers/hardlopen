@@ -13,5 +13,5 @@ Officiele tijd is 1:36:58 een dik PR. Dat belooft wat voor 2025.
 
 ## Links
 
-* [Resultaat op sporthive.com](https://results.sporthive.com/events/7249382119669006336/races/491064/bib/5980)
+* [Resultaat op uitslagen.nl](https://uitslagen.nl/uitslag?id=2025011900921&tl=nl&zk=eric+tummers)
 
