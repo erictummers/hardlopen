@@ -2,7 +2,7 @@
 layout: post
 ---
 
-Dit jaar lopen we met een groepje parkrunners mee in de Marathon van Amsterdam. We zijn met z'n vijven - Marijn, Frank, Raymond, Daphne en ikzelf. Een hotel is geregeld en de voorbereiding kan beginnen.
+Dit jaar lopen we met een groepje parkrunners mee in de Marathon van Amsterdam. We zijn met z'n vijven - Marijn, Frank, Raimond, Daphne en ikzelf. Een hotel is geregeld en de voorbereiding kan beginnen.
 
 Net als vorig jaar ga ik het sportrusten schema volgen. De interesse vanuit de andere renners is enorm en iedereen wil weten hoe het gaat. Helaas weer een blessure die roet in het eten gooit. En opnieuw ben ik op tijd hersteld om te lopen.
 
